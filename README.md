@@ -1,3 +1,3 @@
 # server
 
-https://drive.google.com/drive/folders/1fWQgYmeA9d2J1s6UaJzm1OK4qmKW1Sy7?usp=drive_link
+https://drive.google.com/file/d/1cjWYUMCd3QI0ZQP4K6Pho9KQRVSk5uIA/view?usp=sharing
